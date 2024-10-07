@@ -13,5 +13,5 @@
     4.Laat 20 minuten rusten in de koelkast. Neem het bakpapier uit de bakvorm en plaats het op een bakplaat. Snijd het deeg in rechthoeken.
     5.Bak 12-15 minuten in een voorverwarmde oven van 160 °C. Laat de koekjes niet bruin worden. Haal de koekjes uit de oven en laat ze op een rooster helemaal afkoelen. 
 
-    [Bron](https://www.kitchenaid.nl/recepten/zandkoekjes-met-3-ingredienten#ingredients) van het recept
+    [Bron](https://www.google.com/search?client=firefox-b-d&q=how+to+make+a+link+work+ik+visual+studio+code) van het recept
 
